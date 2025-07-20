@@ -1,1 +1,0 @@
-# thegiftedhandscreate.github.io
